@@ -1,6 +1,6 @@
 # Shadowrocket 小火箭共享账号 | 美区苹果 ID 共享账号
 
-<p align="center">最近更新于：2025年8月13日</p>
+<p align="center">最近更新于：2025年8月25日</p>
 
 正在寻找可靠的 小火箭账号 或 Shadowrocket 付费已购买美区账号 吗？我们提供便捷的 IOS 共享账号网站，助您轻松获取所需的 美区 ID。
 
@@ -13,9 +13,9 @@
 
 #### [【小火箭共享账号每日更新】](https://docs.applexp.com/free-accounts/Shadowrocket)
 
-#### 购买独享账号（小火箭独享账号，苹果各国ID，等各类账号）[【点击进入购买】](https://shop.muooy.com/)
+#### 购买独享账号（小火箭独享账号，苹果各国ID，等各类账号）[【点击进入购买】](https://juzixp.com/)
 
-#### 购买共享账号地址：[【 点击进入购买】](https://shop.muooy.com/buy/21)
+#### 购买共享账号地址：[【 点击进入购买】](https://juzixp.com/buy/21)
 ---
 
 ## 突破限制，畅享全球网络：解锁您的Shadowrocket（小火箭）体验
